@@ -19,6 +19,9 @@ For those interested, join our server on Discord: https://discord.gg/JSX analyze
 We suggest you start by reading channel # a-ler and share a message with your skills and how you can contribute to the project on channel #competencias.
 As soon as possible, they will be associated with positions. " (in Portuguese)
 
+-> Keep track on this page (VOST - Digital Volunteers in Emergency Situations) ->
+https://www.facebook.com/Vostpt/
+https://info.vost.pt/
 
 https://www.projectopenair.org/
 
